@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Srivallivemuru
+- 👀 I’m interested in learning different things
+- 🌱 I’m currently learning AI
